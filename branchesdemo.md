@@ -1,7 +1,7 @@
 # BRANCH BUDDIES
 
 ## Austin
-
+### おはようございます
 ## Burns
 
 By George, I think I've done it.
