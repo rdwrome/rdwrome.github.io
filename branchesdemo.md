@@ -12,7 +12,7 @@ By George, I think I've done it.
 ### This means cat in a few languages
 ## Kaya
 
-## Tryfonas
+## Tryfonas Yorgos
 
 ## Uzieblo
 
