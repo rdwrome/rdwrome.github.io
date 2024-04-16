@@ -10,7 +10,7 @@
 
 ## Kaya
 
-## Tryfonas
+## Tryfonas Yorgos
 
 ## Uzieblo
 
