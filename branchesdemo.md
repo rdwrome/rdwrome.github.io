@@ -14,19 +14,19 @@
 
 ## Hermann
 
-## Li
+## Li Sup
 
 ## Linder
 
 ## Mendoza
 
-butthseks
+buttsheks
 
 ## Moure
 
 ## Pankin
 
-## Rome
+## Rome wassup
 
 ## Sakata
 
