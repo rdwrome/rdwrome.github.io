@@ -3,7 +3,7 @@
 ## Acevedo shameless plug
 COME TO NOCTURNIA APRIL 22 IN THE RED ROOM 630 PM
 ## Bessette
-What the XC team called me.
+Audire Soundtrack Collective 7 PM Saturday April 20 @ Saint Clements.
 ## Cordisco
 
 ## deBeaumont bussin'
