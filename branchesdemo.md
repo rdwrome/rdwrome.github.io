@@ -10,7 +10,7 @@
 
 ## Ge
 
-## He
+## He is she.
 
 ## Hermann
 
