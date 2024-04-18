@@ -1,31 +1,34 @@
 # BRANCH BUDDIES
 
-## Acevedo
-
+## Acevedo shameless plug
+COME TO NOCTURNIA APRIL 22 IN THE RED ROOM 630 PM
 ## Bessette
-
+What the XC team called me.
 ## Cordisco
 
-## deBeaumont
+## deBeaumont bussin'
 
-## Ge
+## Ge honda civic type r
 
-## He
+## He is she.
 
 ## Hermann
 
-## Li Sup
+## Li  Sup
 
-## Linder
+## Linder hello there
 
 ## Mendoza
 
-## Moure Crustaceans are my favorite sea creatures
+<<<<<< GMornin2U
+## Moure Crustaceans 
+  are my favorite sea creatures
+>>>>>> master
 
-## Pankin
+## Pankin   something
 
-## Rome wassup
+## Rome has SPOKEN
 
-## Sakata
+## Sakata aaaaa
 
-## Small
+## Small Awesome Sauce
