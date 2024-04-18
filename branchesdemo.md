@@ -20,9 +20,10 @@ What the XC team called me.
 
 ## Mendoza
 
-buttsheks
-
-## Moure
+<<<<<< GMornin2U
+## Moure Crustaceans 
+  are my favorite sea creatures
+>>>>>> master
 
 ## Pankin   something
 
