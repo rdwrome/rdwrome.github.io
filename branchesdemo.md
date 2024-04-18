@@ -1,26 +1,31 @@
 # BRANCH BUDDIES
 
-## Austin
-### おはようございます
-## Burns
+## Acevedo
 
-By George, I think I've done it.
+## Bessette
 
-## David
+## Cordisco
 
-## AINT NO WAY WHAT NOW BOY
+## deBeaumont
 
-## Gatti
-### This means cat in a few languages
-## Kaya
+## Ge
 
-## Tryfonas Yorgos
+## He
 
-## Uzieblo
+## Hermann
 
-## Weir
-Do you believe in life after love?
-## Wray
+## Li
 
-## ROME HAS SPOKEN
-- the matter is closed
+## Linder
+
+## Mendoza
+
+## Moure
+
+## Pankin
+
+## Rome
+
+## Sakata
+
+## Small
