@@ -24,7 +24,7 @@
 
 ## Pankin
 
-## Rome wassup
+## Rome has SPOKEN
 
 ## Sakata
 
