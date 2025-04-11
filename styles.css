@@ -1,5 +1,10 @@
-body {
-  background-color: rgb(154, 255, 246);
+html, body {
+  margin: 0;
+  padding: 0;
+}
+
+canvas {
+  display: block;
 }
 
 h1 {
@@ -10,9 +15,4 @@ h1 {
 p {
   font-family: helvetica;
   font-size: 60px;
-}
-
-
-ul {
-
 }
